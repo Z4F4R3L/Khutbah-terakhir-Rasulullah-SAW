@@ -5,15 +5,11 @@
 
 "Berwaspadalah terhadap syaitan demi keselamatan agama kamu. Dia telah berputus asa untuk menyesatkan kamu dalam perkara-perkara besar, maka berjaga-jagalah supaya kamu tidak mengikutinya dalam perkara-perkara kecil.
 
-"Wahai manusia sebagaimana kamu
+"Wahai manusia sebagaimana kamu mempunyai hak atas isteri kamu, mereka juga mempunyai hak ke atas kamu. Sekiranya mereka menyempurnakan hak mereka ke atas kamu, maka mereka juga berhak diberikan makan dan pakaian, dalam suasana kasih sayang. Layanilah wanita-wanita kamu dengan baik dan berlemah-lembutlah terhadap mereka kerana sesungguhnya mereka adalah teman dan pembantu kamu yang setia. Dan hak kamu atas mereka ialah mereka sama sekali tidak boleh memasukkan orang yang kamu tidak sukai ke dalam rumah kamu dan dilarang melakukan zina.
 
-mempunyai hak atas isteri kamu, mereka juga mempunyai hak ke atas kamu. Sekiranya mereka menyempurnakan hak mereka ke atas kamu, maka mereka juga berhak diberikan makan dan pakaian, dalam suasana kasih sayang. Layanilah wanita-wanita kamu dengan baik dan berlemah-lembutlah terhadap mereka kerana sesungguhnya mereka adalah teman dan pembantu kamu yang setia. Dan hak kamu atas mereka ialah mereka sama sekali tidak boleh memasukkan orang yang kamu tidak sukai ke dalam rumah kamu dan dilarang melakukan zina.
+"Wahai manusia, dengarlah bersungguh-sungguh kata-kataku ini, sembahlah Allah, dirikanlah solat lima waktu, berpuasalah di bulan Ramadhan, dan tunaikanlah zakat dari harta kekayaan kamu. Kerjakanlah ibadah haji sekiranya kamu mampu. Ketahuilah bahawa setiap Muslim adalah saudara kepada Muslim yang lain. Kamu semua adalah sama, tidak seorang pun yang lebih mulia dari yang lainnya kecuali dalam Taqwa dan beramal soleh. 
 
-"Wahai manusia, dengarlah bersungguh- sungguh kata-kataku ini, sembahlah Allah, dirikanlah solat lima waktu, berpuasalah di bulan Ramadhan, dan tunaikanlah zakat dari harta kekayaan kamu. Kerjakanlah ibadah haji sekiranya kamu mampu. Ketahuilah bahawa setiap Muslim adalah saudara kepada Muslim yang lain. Kamu
-
-semua adalah sama; tidak seorang pun yang lebih mulia dari yang lainnya kecuali dalam Taqwa dan beramal soleh. "Ingatlah, bahawa kamu akan menghadap Allah pada suatu hari untuk
-
-dipertanggungjawabkan diatas segala apa yang telah kamu kerjakan. Oleh itu, awasilah agar jangan sekali-kali kamu terkeluar dari landasan kebenaran selepas ketiadaanku.
+"Ingatlah, bahawa kamu akan menghadap Allah pada suatu hari untuk dipertanggungjawabkan diatas segala apa yang telah kamu kerjakan. Oleh itu, awasilah agar jangan sekali-kali kamu terkeluar dari landasan kebenaran selepas ketiadaanku.
 
 "Wahai manusia, tidak ada lagi Nabi atau Rasul yang akan datang selepasku dan tidak akan lahir agama baru. Oleh itu wahai manusia, nilailah dengan betul dan fahamilah kata-kataku yang telah aku sampaikan kepada kamu. Sesungguhnya aku tinggalkan kepada kamu dua perkara, yang sekiranya kamu berpegang teguh dan mengikuti kedua-duanya, nescaya kamu tidak akan tersesat selama-lamanya. Itulah Al-Qur'an dan Sunnahku.
 
