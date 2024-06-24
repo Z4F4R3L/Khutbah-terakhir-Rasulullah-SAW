@@ -1,4 +1,4 @@
-# Khutbah-Terakhir-Rasulullah-SAW 
+# Khutbah Terakhir Rasulullah SAW 
 "Wahai manusia, dengarlah baik-baik apa yang hendak kukatakan, Aku tidak mengetahui apakah aku dapat bertemu lagi dengan kamu semua selepas tahun ini. Oleh itu, dengarlah dengan teliti kata- kataku ini dan sampaikanlah ia kepada orang-orang yang tidak dapat hadir disini pada hari ini.
 
 "Wahai manusia, sepertimana kamu menganggap bulan ini dan kota ini sebagai suci, anggaplah jiwa dan harta setiap orang Muslim sebagai amanah suci. Kembalikan harta yang diamanahkan kepada kamu kepada pemiliknya yang berhak. Janganlah kamu sakiti sesiapapun agar orang lain tidak menyakiti kamu lagi. Ingatlah bahawa sesungguhya kamu akan menemui Tuhan kamu dan Dia pasti membuat perhitungan di atas segala amalan kamu. Allah telah mengharamkan riba, oleh itu, segala urusan yang melibatkan riba dibatalkan mulai sekarang.
